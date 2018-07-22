@@ -1,6 +1,6 @@
 # Onderhuren
 
-_(English below>)_
+_(English below)_
 
 Beste lezer,
 
@@ -12,11 +12,10 @@ Voor de periode 1 oktober 2018 tot 1 oktober 2019 zoek ik een onderhuurder voor 
 
 Neem contact op via romijndersrob@gmail.com
 
+
 ---------------------------------
-^ Dutch up
-|
-v English below
----------------------------------
+--------------------------------
+
 
 Dear reader,
 
