@@ -36,12 +36,18 @@ Reach me at romijndersrob@gmail.com
 --------------------------------
 
 ## Appartement
-![photo1](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0378.JPG?raw=true)
 ![photo2](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0379.JPG?raw=true)
 ![photo3](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0381.JPG?raw=true)
 ![photo4](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0382.JPG?raw=true)
 Mijn favoriete opstelling voor de woonkamer om mensen te ontvangen
 ![photo5](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/DSC00376.JPG?raw=true)
+Ik heb mijn slaapkamer anders ingedeeld vanwege de licht inval. Hieronder zie je foto's van de nieuwe opstelling
+![photo6](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0460.JPG?raw=true)
+![photo7](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0461.JPG?raw=true)
+![photo8](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0462.JPG?raw=true)
+![photo9](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0463.JPG?raw=true)
+![photo10](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0464.JPG?raw=true)
+![photo11](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/SAM_0465.JPG?raw=true)
 
 ## Bouwtekening
 ![tekening](https://github.com/RobRomijnders/sublet/blob/master/onderhuur_fotos/building_plan.png?raw=true)
